@@ -90,7 +90,7 @@ Based on their current purchasing behavior:
 | 30 days | ≈ **£ 1,030,000** |
 | 90 days | ≈ **£ 3,100,000** |
 
-The Insider group is not only historically important — it sustains future revenue.
+The Insider group sustains future revenue.
 
 ---
 
